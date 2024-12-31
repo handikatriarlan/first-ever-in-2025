@@ -1,6 +1,6 @@
 # First Ever in 2025
 
-Welcome to my first project in 2025! 🎉
+Welcome to my first ever in 2025! 🎉
 
 ## About
 
